@@ -24,6 +24,17 @@ If you want to fork Quirk, you should fork off of [this commit](https://github.c
 
 🚧🚧🚧
 
+**Forking User**
+
+Hi my name is Sanskriti and I am one of the persons who is forking this project in my account. I am commiting a change in this project as on of my project in whitehat jr.  I am not having any idea of mental health and i cannot understand what this project is all about. But some of the points are noted down for mental health.
+
+1. A person remains healthy untill they are not having any mental illness and physical injuries.
+2. Mental illness is also that important as physical injuiries.
+3. A person should remain mentally fit for a healthy life.
+4. Mental illness is caused because of some thing in life which is not going good. Or using much of social media.
+5. There are many more points present in youtube which you can go with.
+6. Thanks for reading and also for giving your precious time.
+
 
 ---
 
